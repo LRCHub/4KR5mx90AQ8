@@ -1,0 +1,68 @@
+# Brent Faiyaz – ANGEL
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I look in the mirror
+And I see the worst
+in parts of me
+That I don't want
+But I never tell you that
+(I never tell you that)
+And you look amazing
+So how can I stand watching
+you be, and not feel small?
+Damn,
+I wish I could change all that
+(I wish I could change all that)
+But from what I know,
+you'll never go away
+Don't ever leave my side,
+baby, I'll die
+But from what I know,
+you're always here to stay
+You're an angel in disguise
+Living in hell
+Then maybe you'll save me
+in the end
+I need your help
+And I'm here if you need mine
+(You need mine)
+When I'm overwhelmed
+I take a vacation in my head
+and don't bring no one else
+I guess you could come some time
+(Come some time)
+But from what I know,
+you'll never go away
+Don't ever leave my side,
+girl, I'll die
+But from what I know,
+you're always here to stay
+You're an angel in disguise
+An angel, an angel, an angel,
+an angel
+An angel, an angel, angel, angel
+An angel, an angel, an angel,
+an angel
+(Angel in disguise fell
+from the heavens in the sky)
+(You're my angel)
+An angel, an angel, angel, angel
+(Angel in disguise fell
+from the heavens in the sky)
+(You're my angel)
+An angel, an angel, an angel,
+an angel
+(Angel in disguise fell
+from the heavens in the sky)
+An angel, an angel, angel, angel
+(Angel in disguise fell
+from the heavens in the sky)
+But from what I know,
+you'll never go away
+Don't ever leave my side,
+girl, I'll die
+But from what I know,
+you're always here to stay
+```
